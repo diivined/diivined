@@ -1,16 +1,13 @@
-## Hi there 👋
+<p align="center">
+  <img src="https://github.com/user-attachments/assets/e2670ce8-6aca-4307-98b9-624cb9ec92c3" alt="castiel tilting his head"/>
+</p>
 
-<!--
-**diivined/diivined** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+                      You know, ever since we met and ever since I pulled you out of Hell, knowing you has changed me. 
+                            Because you cared, I cared. I cared about you. I cared about Sam. I cared about Jack   
+                                               I cared about the whole world because of you. 
+                                                          You changed me, Dean.
+                                                   
+                                                                 . . .
+                                                           
+                                                       Because it is. I love you.
