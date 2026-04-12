@@ -12,4 +12,11 @@
                                                                    . . .
                                                            
                                                          Because it is. I love you.
-                                                       
+                                                         
+                                                         
+  <p align="center">
+  <img src="https://github.com/user-attachments/assets/757ddd2b-ddc9-4920-8550-d4963dcb1a08" alt="usual hangout spot"/>
+</p>
+
+                                                   usual hangout spot, mostly spn fans there.
+
