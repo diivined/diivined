@@ -1,6 +1,5 @@
 <p align="center">
   <img src="https://github.com/user-attachments/assets/9f1dda9f-03f3-4291-9fbe-8458422b5fb0" alt="castiel tilting his head"/>
-</p>
 
 <img width="2048" height="163" alt="tumblr_24240637be8214e5617a1b64ae04aaf9_1497a6f2_2048" src="https://github.com/user-attachments/assets/52d9c381-71ba-4070-ba42-bc5789c10081" />
 
@@ -13,10 +12,3 @@
                                                            
                                                          Because it is. I love you.
                                                          
-                                                         
-  <p align="center">
-  <img src="https://github.com/user-attachments/assets/757ddd2b-ddc9-4920-8550-d4963dcb1a08" alt="usual hangout spot"/>
-</p>
-
-                                                   usual hangout spot, mostly spn fans there.
-
